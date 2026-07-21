@@ -40,5 +40,5 @@ worker-progress-tracker/
 
 https://github.com/user-attachments/assets/5f93c3f9-f79d-47d8-bd21-fdcfb62530d4
 
------PLEASE CHECK QUALITY----
+---KEEP QUALITY 1080P---
 https://drive.google.com/file/d/1C6RoMU_n-LsXNGSJf5V8k-Cs0MVv7Yb2/view?usp=drive_link
