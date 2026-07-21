@@ -85,5 +85,7 @@ For questions or suggestions, feel free to open an issue in the repository.
 
 https://github.com/user-attachments/assets/0fd87881-5cff-4a42-96d7-5f66daa777ba
 
+---PLEASE CHECK QUALITY---
+https://drive.google.com/file/d/1C6RoMU_n-LsXNGSJf5V8k-Cs0MVv7Yb2/view?usp=drive_link
 
 
